@@ -8,8 +8,8 @@ UK-based AI builder making small, useful tools around economics, education, prod
 
 - GitHub: [CalebLiu](https://github.com/CalebLiu)
 - X / Twitter: [@CalebLiu](https://x.com/CalebLiu)
-- 抖音: 英区发明家
-- 小红书: 英区发明家
+- 抖音: 英区发明家 / 24313238424
+- 小红书: [英区发明家 / 441959627](https://www.xiaohongshu.com/user/profile/441959627)
 
 **Current work:**
 
